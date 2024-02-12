@@ -1,2 +1,2 @@
 # info-Fernando
-Breve resumen y carta de presentación 
+Breve resumen de mi vida profecional, carta de presentación y documentos anexados 
